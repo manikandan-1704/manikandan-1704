@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **manimk1704@gmail.com**
 
-- 📄 Know about my experiences [here](https://drive.google.com/file/d/1X1oXNJ3NiFZh6XoGMV2k0XPghfJeMRzR/view?usp=sharing)
+- 📄 Know about my experiences [here](https://drive.google.com/file/d/1eb5npjXEUa8Cc3bZ8AMB9mlgI_w25VN9/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
